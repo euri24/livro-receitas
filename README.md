@@ -1,4 +1,4 @@
-# no se que escribir  
+# tips de estudio 
 
 1. devo tener disciplina 
 2. cuando voy a estudiar no devo estar pendiente de otras cosas 
